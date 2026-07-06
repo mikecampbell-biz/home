@@ -9,7 +9,7 @@ Finance and Accounting Professional with over 30 years overseeing general ledger
 ### PROFESSIONAL EXPERIENCE  
 
 **MILLS SUPPLY & SUBSIDIARIES**, Louisville, Kentucky, 2025–Present  
-<i>Steel Rebar Fabrication, Transportation, Real Estate Holdings</i>   
+*Steel Rebar Fabrication, Transportation, Real Estate Holdings*   
 Chief Financial Officer  
 
 - Mills Supply is a second-generation family-owned business with $90 million annual revenue. 
